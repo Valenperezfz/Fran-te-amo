@@ -1,2 +1,2 @@
 # Fran-volve
-Franchu ted hice esta pagina porq te extraño
+Franchu te hice esta pagina porq te extraño
